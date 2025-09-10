@@ -2,4 +2,4 @@
 Worried about siege? Look no further! I have curated and meticulously designed a full armoury of weapons to help prepare you for the upcoming siege! Together, we can get through these 10 weeks and receive our bounty! 
 
 ![Screenshot](Screenshot%202025-09-08%20001803.png)
-![Screenshot](IMG%2020250910%20183858.jpg)
+![Screenshot](IMG_20250910_183858.jpg)
